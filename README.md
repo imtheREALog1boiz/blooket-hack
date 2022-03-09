@@ -1,1 +1,1 @@
-# blooket-hack
+all token hack
